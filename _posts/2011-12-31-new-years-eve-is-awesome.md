@@ -1,6 +1,6 @@
 ---
-layout: post
 title:  "Welcome to Jekyll!"
+tags: first steps hello
 ---
 
 # Welcome
