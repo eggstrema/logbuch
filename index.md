@@ -1,5 +1,9 @@
-## Posts:
+---
+title:  "Overview"
+layout: default
+---
 
+## Posts:
 
 {% for post in site.posts %}
 * <a href="{{ post.url | absolute_url }}">{{ post.title }}</a>
