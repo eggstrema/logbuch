@@ -2,6 +2,6 @@
 
 
 {% for post in site.posts %}
-* <a href="{{ site.url }}{{ post.url }}">{{ post.title }}</a>
+* <a href="{{ post.url | absolute_url }}">{{ post.title }}</a>
 {% endfor %}
 
