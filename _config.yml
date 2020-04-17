@@ -6,4 +6,3 @@ defaults:
       path: ""
     values:
       author: "Eggstrema"
-      date: "%Y-%m-%d"
