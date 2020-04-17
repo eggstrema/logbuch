@@ -1,7 +1,3 @@
----
-layout: post
-title:  "Welcome to Jekyll!"
----
 
 <ul>
   {% for post in site.posts %}
