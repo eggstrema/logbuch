@@ -1,3 +1,10 @@
 theme: jekyll-theme-hacker
 url: https://eggstrema.github.io
 baseurl: /playground
+defaults:
+  -
+    scope:
+      path: ""
+    values:
+      layout: "post"
+      author: "Eggstrema"
