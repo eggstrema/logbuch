@@ -5,6 +5,6 @@ title:  "Overview"
 ## Posts:
 
 {% for post in site.posts %}
-* <a href="{{ post.url | absolute_url }}">{{ post.title }}</a>
+* {{ page.date }} <a href="{{ post.url | absolute_url }}">{{ post.title }}</a>
 {% endfor %}
 
