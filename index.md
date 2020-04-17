@@ -1,9 +1,7 @@
 ## Posts:
 
-<ul>
-  {% for post in site.posts %}
-    <li>
-      <a href="{{ site.url }}{{ post.url }}">{{ post.title }}</a>
-    </li>
-  {% endfor %}
-</ul>
+
+{% for post in site.posts %}
+* <a href="{{ site.url }}{{ post.url }}">{{ post.title }}</a>
+{% endfor %}
+
