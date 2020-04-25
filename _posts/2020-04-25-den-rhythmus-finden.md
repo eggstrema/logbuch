@@ -32,26 +32,26 @@ Außer meinen persönlichen Umständen erfordert auch die Pandemie ein neues Kon
 
 ### Beispiel: Tee statt Cola
 
-Im letzten Jahr bin ich zum Späti gegangen, wenn meine Cola-Flasche leer war. Die leeren Falschen haben sich in meiner Küche eine eigene Ecke eingenommen-
+Im letzten Jahr bin ich zum Späti gegangen, wenn meine Cola-Flasche leer war. Die leeren Flaschen haben sich in meiner Küche eine eigene Ecke eingenommen-
 
 Im November bin ich auf Tee - mit viel Zucker und Milch - umgestiegen.
 
 Im Dezember hatte ich schon drei verschiedene Sorten am Start und musste zum Supermarkt, wenn die Milch leer war.
 
-Im Februar habe ich auf fünf Sorten erhöht, die Zucker-Dosis pro Aufguss verringert und zu jedem Zeitpunkt eine neue Milch in Reserve.
+Im Februar hatte ich auf fünf Sorten erhöht, die Zucker-Dosis pro Aufguss verringert und zu jedem Zeitpunkt eine neue Milch in Reserve.
 
-Im April habe ich sieben Sorten (daneben drei in Reserve), brauche kaum noch Zucker (trotzdem eine Packung in Reserve) und neben der angebrochenen Milch drei verschiedene Sorten in Reserve.
+Heute habe ich sieben Sorten (daneben drei in Reserve), brauche kaum noch Zucker (trotzdem eine Packung in Reserve) und neben der angebrochenen Milch drei in Reserve.
 
 * * *
 
 ### Ich gebe den Takt an
 
-Und genau jene Bestandsaufnahme hat mich eben mit einer wohligen Zufriedenheit erfüllt. Ich hatte Angst vor dem Umstieg, hatte ich mich doch Jahrzehnte an Konzern-Zuckerwasser gewöhnt.
+Und genau jene Bestandsaufnahme hat mich eben mit einer wohligen Zufriedenheit erfüllt. Ich hatte Angst vor dem Umstieg, hatte ich mich doch über Jahrzehnte an Konzern-Zuckerwasser gewöhnt.
 
-Ich bin froh, die ANgst überwunden zu haben. Es waren einige Schritte bis hier, aber jeder für sich war gangbar. Der Tee ist nur ein Beispiel von vielen in meinem neuen Leben.
+Ich bin froh, die Angst überwunden zu haben. Es waren einige Schritte bis hier, aber jeder für sich war gangbar. Der Tee ist nur ein Beispiel von vielen in meinem neuen Leben.
 
-* Ich nehme neuerdings täglich drei selbst bereitete Mahlzeiten zu mir, und bin noch dabei, mich in Beschaffung, Reserven und Zubereitung ein zu fuchsen. Es tut gut, mich gesund zu ernähren.
-* Ich kümmere mich zum ersten Mal in meinem Leben um meine Wohnung. Ich genießedie Sauberjeit und dass alles seinen Platz hat.
+* Ich nehme neuerdings täglich drei selbst bereitete Mahlzeiten zu mir, und bin noch dabei, mich in Beschaffung, Reserven und Zubereitung einzufuchsen. Es tut gut, mich gesund zu ernähren.
+* Ich kümmere mich zum ersten Mal in meinem Leben um meine Wohnung. Ich genieße die Sauberkeit und dass alles seinen Platz hat.
 * Ich nehme mir jeden Tag etwas Zeit, um Leute anzuschreiben oder anzurufen, von denen ich länger nichts gehört habe. Bin heute morgen aufgewacht und hatte einen Stapel lieber Nachrichten auf meinem Telefon, die mir das Herz aufgehen lassen haben.
 * Ich schlafe regelmäßig und genug. Es ist toll, morgens frisch und voller Energie aufzuwachen.
 * Ich behalte den Überblick über meine Ausgaben. Das ist echt kool am Ende des Monats.
