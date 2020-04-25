@@ -8,7 +8,7 @@ In den letzten sechs Monaten hat sich mein gesamtes Leben mehrfach überschlagen
 
 Im November hatte ich nicht mehr, als ich tragen konnte. Seitdem ist ein wenig dazu gekommen, aber nur Dinge, die ich wirklich für den Alltag brauche oder die einen hohen emotionalen Wert für mich haben.
 
-Ich habe in fünf verschiedenen Einrichtungen gewohnt, wo jedes mal andere Regeln galten und ich mich mit grundlegend unterschiedlichen Menschen arrangieren musste.
+Ich habe in fünf verschiedenen Häusern gewohnt, wo jedes mal andere Regeln galten und ich mich mit grundlegend unterschiedlichen Menschen arrangieren musste.
 
 Was ich früher schrecklich fand, nehme ich nochmal ganz unvoreingenommen unter die Lupe. Aber auch was ich früher gefeiert habe, verdient einen frischen Blick. Ich bin in den Monaten so viel gereift, wie zuvor in Jahren.
 
@@ -24,9 +24,9 @@ Erwähntes Buch über Schamanismus weiterhin sinngemäß:
 
 > Jeder Abschnitt unseres Weges stellt eine neue Herausforderung dar. Wir können jene annehmen oder ausweichen und eine andere Lektion vorziehen. Letztendlich werden wir im Laufe unseres Lebens doch allen Lektionen gegenüber stehen und uns behaupten müssen.
 
-Ich mag diese Vorstellung. All der materielle und emotionale Ballast, den ich im November abgworfen habe, hat mir eine ungeahnte Freiheit in meinen Entscheidungen beschert. Ich bin dankbar für jene Gelegenheiten. Und ich bin stolz auf jede einzelne Hürde, die ich genommen habe.
+Ich mag diese Vorstellung. All der materielle und emotionale Ballast, den ich im November abgeworfen habe, hat mir eine ungeahnte Freiheit in meinen Entscheidungen beschert. Ich bin dankbar für jene Gelegenheiten. Und ich bin stolz auf jede einzelne Hürde, die ich genommen habe.
 
-Außer meinen persönlichen Umständen erfordert auch die Pandemie ein neues Konzept für "Alltag". Immer und immer wieder sitze ich in meinem neuen Heim und frage mich: Wie möchte ich mein Bedürfnis nach XYZ eigentlich erfüllen, ohne an meine alten Gewohnheiten gebunden zu sein. Was eine großartige Freiheit.
+Außer meinen persönlichen Umständen erfordert auch die Pandemie ein neues Konzept für "Alltag". Immer und immer wieder sitze ich in meinem neuen Heim und frage mich: Wie möchte ich mein Bedürfnis nach XYZ eigentlich erfüllen, ohne an meine alten Gewohnheiten gebunden zu sein. Ich erfinde mich neu.
 
 * * *
 
@@ -57,11 +57,4 @@ Ich bin froh, die Angst überwunden zu haben. Es waren einige Schritte bis hier,
 * Ich behalte den Überblick über meine Ausgaben. Das ist echt kool am Ende des Monats.
 * Ich nehme meine Medikamente regelmäßig und habe Reserven. Mein Körper dankt es mir mehr, als ich je gedacht hätte.
 
-Und so gehe ich heute Abend mit einer Ruhe ins Bett, die ich früher nicht kannte. Müde und zufrieden.
-
-
-
-
-
-
-
+Und so gehe ich heute Abend mit einer Ruhe ins Bett, die ich früher nicht kannte. Müde und zufrieden. 
