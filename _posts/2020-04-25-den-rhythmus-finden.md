@@ -6,34 +6,25 @@ title:  "Den Rhythmus finden"
 
 In den letzten sechs Monaten hat sich mein gesamtes Leben mehrfach überschlagen.
 
-Ich habe fast alle meine materiellen Beitztümer zurück gelassen. Im November hatte ich genau so viel, wie ich mit mir tragen konnte. Seitdem ist ein wenig Kram dazu gekommen, aber nur Dinge, die ich wirklich für den Alltag brauche oder die einen wirklich hohen emotionalen Wert für mich haben.
+Im November hatte ich nicht mehr, als ich tragen konnte. Seitdem ist ein wenig dazu gekommen, aber nur Dinge, die ich wirklich für den Alltag brauche oder die einen hohen emotionalen Wert für mich haben.
 
 Ich habe in fünf verschiedenen Einrichtungen gewohnt, wo jedes mal andere Regeln galten und ich mich mit grundlegend unterschiedlichen Menschen arrangieren musste.
 
-Ich habe in der kurzen Zeit viele Lektionen über das Leben, das Universum und alles gelernt und bin dabei so ziemlich alles neu zu bewerten. Was ich früher schrecklich fand, nehme ich nochmal ganz unvoreingenommen unter die Lupe. Aber auch was ich früher gefeiert habe, verdient einen frischen Blick. Ich bin in den Monaten so viel gereift, wie zuvor in Jahren.
+Was ich früher schrecklich fand, nehme ich nochmal ganz unvoreingenommen unter die Lupe. Aber auch was ich früher gefeiert habe, verdient einen frischen Blick. Ich bin in den Monaten so viel gereift, wie zuvor in Jahren.
 
-Ich habe deutlich mehr als hundert Menschen neu kennen gelernt und leider auch den Kontakt zu den meisten wieder verloren. Das bewerte ich nicht als allzu dramatisch, da mein Liebelings-Buch über Schamanismus - das ich auch in jenem Zeitraum gelesen habe - mich gelehrt hat, dass jeden Seele ihren eigenen Weg beschreiten muss und unsere Pfade sich immer nur zeitweise überlagern. Ich gebe ehrlich zu, dass einige Abschiede sehr im Herzen weh getan haben. Auf Google finde ich viele Treffer für das Konzept
-
-> Lieben heißt loslassen
-
-Also wird schon alles seine Richtigkeit haben.
-
+Ich habe deutlich mehr als hundert Menschen kennen gelernt und leider auch den Kontakt zu den meisten wieder verloren. Mein Lieblings-Buch über Schamanismus behauptet, dass jede Seele ihren eigenen Weg beschreiten muss und unsere Pfade sich immer nur zeitweise überlagern. Ich gebe ehrlich zu, dass einige Abschiede sehr im Herzen weh getan haben.
 
 * * *
 
 ### Neue Möglichkeiten
 
-Ich nehme all diese Veränderungen als höchst positiv wahr. Ich möchte reifen und seelisch wachsen. Selbst die negativen Gefühle, die mich an manchen Tagen überkommen haben, waren Gelegenheiten weiter zu wachsen.
+Ich begrüße diese Veränderungen. Ich möchte reifen und seelisch wachsen. Selbst die negativen Gefühle, die mich an manchen Tagen überkommen haben, waren Gelegenheiten weiter zu wachsen.
 
-Erwähntes Buch über Schamanismus hatte auch sinngemäß behauptet
+Erwähntes Buch über Schamanismus weiterhin sinngemäß:
 
-> Jeder Abschnitt unseres Weges stellt eine neue Herausforderung zum persönlichen Wachstum wahr. Wir können unseren Pfad in der schwierigen Richtung fortsetzen und eine neue Lektion lernen, oder ausweichen und dadurch eine andere, leichter erscheinende Lektion vorziehen. Letztendlich werden wir im Laufe unseres Lebens doch allen Lektionen gegenüber stehen und uns behaupten müssen.
+> Jeder Abschnitt unseres Weges stellt eine neue Herausforderung dar. Wir können jene annehmen oder ausweichen und eine andere Lektion vorziehen. Letztendlich werden wir im Laufe unseres Lebens doch allen Lektionen gegenüber stehen und uns behaupten müssen.
 
-Ich mag diese Vorstellung. Und ich muss ganz klar sagen, dass ich auch die ein oder andere Hürde erstmal gemieden habe.
-
-Nichtsdestotrotz habe ich viele Herausforderungen angenommen und unglaublich viele Fortschritte gemacht. All der materielle und emotonale Ballast, den ich im November abgworfen habe, hat mir eine ungeahnte Freiheit in meinen Entscheidungen beschert.
-
-Ich bin dankbar für jene Gelegenheiten. Und ich bin stolz auf jede einzelne Hürde, die ich genommen habe.
+Ich mag diese Vorstellung. All der materielle und emotionale Ballast, den ich im November abgworfen habe, hat mir eine ungeahnte Freiheit in meinen Entscheidungen beschert. Ich bin dankbar für jene Gelegenheiten. Und ich bin stolz auf jede einzelne Hürde, die ich genommen habe.
 
 Außer meinen persönlichen Umständen erfordert auch die Pandemie ein neues Konzept für "Alltag". Immer und immer wieder sitze ich in meinem neuen Heim und frage mich: Wie möchte ich mein Bedürfnis nach XYZ eigentlich erfüllen, ohne an meine alten Gewohnheiten gebunden zu sein. Was eine großartige Freiheit.
 
