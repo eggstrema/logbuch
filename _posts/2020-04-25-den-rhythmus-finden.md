@@ -10,17 +10,15 @@ Im November hatte ich nicht mehr, als ich tragen konnte. Seitdem ist ein wenig d
 
 Ich habe in fünf verschiedenen Häusern gewohnt, wo jedes mal andere Regeln galten und ich mich mit grundlegend unterschiedlichen Menschen arrangieren musste.
 
-Was ich früher schrecklich fand, nehme ich nochmal ganz unvoreingenommen unter die Lupe. Aber auch was ich früher gefeiert habe, verdient einen frischen Blick. Ich bin in den Monaten so viel gereift, wie zuvor in Jahren.
+Was ich früher schrecklich fand, nehme ich nochmal unvoreingenommen unter die Lupe. Was ich früher gefeiert habe, verdient einen frischen Blick. Ich bin in den Monaten so viel gereift, wie zuvor in Jahren.
 
-Ich habe deutlich mehr als hundert Menschen kennen gelernt und leider auch den Kontakt zu den meisten wieder verloren. Mein Lieblings-Buch über Schamanismus behauptet, dass jede Seele ihren eigenen Weg beschreiten muss und unsere Pfade sich immer nur zeitweise überlagern. Ich gebe ehrlich zu, dass einige Abschiede sehr im Herzen weh getan haben.
+Ich habe deutlich mehr als hundert Menschen kennen gelernt und den Kontakt zu den meisten wieder verloren. Mein Lieblings-Buch über Schamanismus behauptet, dass jede Seele ihren eigenen Weg beschreiten muss und unsere Pfade sich immer nur zeitweise überlagern. Einige Abschiede haben sehr weh getan.
 
 * * *
 
 ### Neue Möglichkeiten
 
-Ich begrüße diese Veränderungen. Ich möchte reifen und seelisch wachsen. Selbst die negativen Gefühle, die mich an manchen Tagen überkommen haben, waren Gelegenheiten weiter zu wachsen.
-
-Erwähntes Buch über Schamanismus weiterhin sinngemäß:
+Ich begrüße diese Veränderungen. Ich möchte reifen und seelisch wachsen. Die negativen Gefühle, die mich an manchen Tagen überkommen haben, waren Gelegenheiten weiter zu wachsen. Erwähntes Buch über Schamanismus weiterhin sinngemäß:
 
 > Jeder Abschnitt unseres Weges stellt eine neue Herausforderung dar. Wir können jene annehmen oder ausweichen und eine andere Lektion vorziehen. Letztendlich werden wir im Laufe unseres Lebens doch allen Lektionen gegenüber stehen und uns behaupten müssen.
 
@@ -32,15 +30,11 @@ Außer meinen persönlichen Umständen erfordert auch die Pandemie ein neues Kon
 
 ### Beispiel: Tee statt Cola
 
-Im letzten Jahr bin ich zum Späti gegangen, wenn meine Cola-Flasche leer war. Die leeren Flaschen haben sich in meiner Küche eine eigene Ecke eingenommen-
-
-Im November bin ich auf Tee - mit viel Zucker und Milch - umgestiegen.
-
-Im Dezember hatte ich schon drei verschiedene Sorten am Start und musste zum Supermarkt, wenn die Milch leer war.
-
-Im Februar hatte ich auf fünf Sorten erhöht, die Zucker-Dosis pro Aufguss verringert und zu jedem Zeitpunkt eine neue Milch in Reserve.
-
-Heute habe ich sieben Sorten (daneben drei in Reserve), brauche kaum noch Zucker (trotzdem eine Packung in Reserve) und neben der angebrochenen Milch drei in Reserve.
+1. Im letzten Jahr bin ich zum Späti gegangen, wenn meine Cola-Flasche leer war. Die leeren Flaschen haben sich in meiner Küche eine eigene Ecke eingenommen.
+2.Im November bin ich auf Tee - mit viel Zucker und Milch - umgestiegen.
+3. Im Dezember hatte ich schon drei verschiedene Sorten am Start und musste zum Supermarkt, wenn die Milch leer war.
+4. Im Februar hatte ich auf fünf Sorten erhöht, die Zucker-Dosis pro Aufguss verringert und zu jedem Zeitpunkt eine neue Milch in Reserve.
+5. Heute habe ich sieben Sorten (daneben drei in Reserve), brauche kaum noch Zucker (trotzdem eine Packung in Reserve) und neben der angebrochenen Milch drei in Reserve.
 
 * * *
 
